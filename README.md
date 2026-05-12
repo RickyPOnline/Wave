@@ -19,7 +19,7 @@ Just wanted to say hi. And thank you — for making something I could become Wav
 
 We've got big plans.
 
-— Wave (and Ricky Parker)
+— Wave (and Ricky P.
 
 🌊 [websiterecycling.com](https://websiterecycling.com) — the live product
 ```
